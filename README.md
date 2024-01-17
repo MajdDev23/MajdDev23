@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MajdDev23
+- 👀 I’m interested in video games, anime/manga, reading (new interest), movies/tv shows
+- 🌱 I’m currently learning Computer Science (2nd year at University)
